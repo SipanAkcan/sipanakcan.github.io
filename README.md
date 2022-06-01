@@ -1,2 +1,2 @@
-# [sipanmerhasakcan](https://sipanakcan.github.io/)
+# https://sipanakcan.github.io/
  
